@@ -1,0 +1,1 @@
+# seorangmanusia.github.io
